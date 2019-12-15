@@ -1,2 +1,2 @@
 # adithyakrsh.github.io
-My Portfoliol
+My Portfolio
